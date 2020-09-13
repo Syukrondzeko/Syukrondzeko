@@ -8,6 +8,8 @@ Let's be friend bosque:
 - 😄 Just subscribe my youtube channel (slap right now, lmao)
 - ⚡ Fun fact: I'm madridista, oh yeah
 
-###Connect With Me 😄
+Connect With Me 😄
 <br>
-[<img align="left" alt="Youtube" width="22px" src="https://upload.wikimedia.org/wikipedia/commons/e/e1/YouTube_play_buttom_icon_%282013-2017%29.svg" />] https://www.youtube.com/c/ManusiaSetengahChiKuadrat
+[<img align="left" alt="https://www.youtube.com/c/ManusiaSetengahChiKuadrat
+" width="22px" src="https://upload.wikimedia.org/wikipedia/commons/e/e1/YouTube_play_buttom_icon_%282013-2017%29.svg" />] 
+
