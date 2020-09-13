@@ -10,6 +10,6 @@ Let's be friend bosque:
 
 Connect With Me 😄
 <br />
-[<img align="left" alt="https://www.youtube.com/c/ManusiaSetengahChiKuadrat
-" width="22px" src="https://upload.wikimedia.org/wikipedia/commons/e/e1/YouTube_play_buttom_icon_%282013-2017%29.svg" />] 
+[<img align="left" alt="youtube" width="22px" src="https://upload.wikimedia.org/wikipedia/commons/e/e1/YouTube_play_buttom_icon_%282013-2017%29.svg" />][youtube]
 
+[youtube] : https://www.youtube.com/c/ManusiaSetengahChiKuadrat
