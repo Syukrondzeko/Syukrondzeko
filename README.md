@@ -9,7 +9,7 @@ Let's be friend bosque:
 - ⚡ Fun fact: I'm madridista, oh yeah
 
 Connect With Me 😄
-<br>
+<br />
 [<img align="left" alt="https://www.youtube.com/c/ManusiaSetengahChiKuadrat
 " width="22px" src="https://upload.wikimedia.org/wikipedia/commons/e/e1/YouTube_play_buttom_icon_%282013-2017%29.svg" />] 
 
